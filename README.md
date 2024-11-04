@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning sft , langchain and too many to learn
 - 📫 How to reach me 878014418@qq.com
 - 😄 Pronouns: 
-- ⚡ Fun fact: my friends often call me tom，and i love ZZ.
+- ⚡ Fun fact: my friends often call me tom，and i love ZZ who is a beautiful girl.
 
 <!---
 Tom2ZZ/Tom2ZZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
